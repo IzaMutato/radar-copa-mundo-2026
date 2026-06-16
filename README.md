@@ -1,0 +1,1 @@
+# radar-copa-mundo-2026
